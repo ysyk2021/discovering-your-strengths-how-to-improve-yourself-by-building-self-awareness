@@ -26,4 +26,4 @@ Finally, effective communication of your strengths is essential for self-advocac
 Conclusion
 ----------
 
-Effective communication of your strengths is essential for personal and professional success. By demonstrating your value, building stronger relationships, collaborating effectively, and advocating for yourself, you can unlock the full potential of your strengths and achieve your goals. In the next chapter, we'll explore techniques for communicating your strengths effectively to others.
+Effective communication of your strengths is essential for personal and professional success. By demonstrating your value, building stronger relationships, collaborating effectively, and advocating for yourself, you can unlock the full potential of your strengths and achieve your goals.

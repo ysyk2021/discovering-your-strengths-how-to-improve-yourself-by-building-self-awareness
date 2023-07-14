@@ -38,4 +38,4 @@ Seeking feedback is another important strategy for maximizing your strengths. As
 Conclusion
 ----------
 
-Maximizing your strengths is essential for personal and professional success. By understanding your strengths, developing a growth mindset, tailoring your approach, and seeking feedback, you can apply your strengths more effectively in various contexts and achieve your goals. In the next chapter, we'll explore techniques for communicating your strengths effectively to others.
+Maximizing your strengths is essential for personal and professional success. By understanding your strengths, developing a growth mindset, tailoring your approach, and seeking feedback, you can apply your strengths more effectively in various contexts and achieve your goals.

@@ -1,5 +1,3 @@
-Developing Active Listening Skills to Receive Feedback on Your Strengths
-=============================================================================================================================
 
 Effective communication is a two-way street. It's not just about communicating your strengths, but also about receiving feedback from others. Developing active listening skills is essential to receiving feedback on your strengths and using that feedback to improve yourself.
 

@@ -1,5 +1,3 @@
-Techniques for Developing Your Strengths
-==============================================================================
 
 Identifying your strengths is just the first step in building self-awareness and improving yourself. Once you have identified your strengths, it's important to develop them further in order to reach your full potential. Here are some techniques for maximizing your strengths:
 

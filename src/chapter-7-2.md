@@ -1,5 +1,3 @@
-Techniques for Using Your Strengths to Achieve Personal and Professional Goals
-====================================================================================================================================================
 
 Identifying your strengths is just the first step towards personal and professional growth. In this chapter, we will discuss techniques for using your strengths to achieve your goals and reach greater success.
 

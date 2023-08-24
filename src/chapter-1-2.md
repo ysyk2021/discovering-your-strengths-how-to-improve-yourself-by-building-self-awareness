@@ -1,5 +1,3 @@
-What are Strengths?
-=================================
 
 Understanding your strengths is an essential part of personal development and growth. In this book, we will explore the concept of strengths, how to identify them, and how to use them to achieve success in your personal and professional life.
 

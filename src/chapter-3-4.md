@@ -1,5 +1,3 @@
-Building a Clear Understanding of Your Unique Strengths
-==============================================================================================
 
 In order to improve yourself and reach your full potential, it is important to have a clear understanding of your unique strengths. Your strengths are the things you do well naturally, that energize you and that you enjoy doing. By identifying your strengths, you can focus your efforts on developing them, which will help you to become more successful and fulfilled in life.
 

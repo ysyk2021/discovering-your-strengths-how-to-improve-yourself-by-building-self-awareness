@@ -1,5 +1,3 @@
-Addressing Common Obstacles and Challenges in Applying Strengths to Growth
-================================================================================================================================================
 
 Using your strengths is critical for personal and professional growth. When we leverage our natural abilities, we can achieve more and feel a greater sense of fulfillment. However, applying our strengths to growth can come with its obstacles and challenges.
 

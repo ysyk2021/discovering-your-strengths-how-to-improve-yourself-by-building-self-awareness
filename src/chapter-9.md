@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 Discovering your strengths and building self-awareness are essential for personal growth and development. In this book, we have explored the theory behind self-awareness, techniques for identifying strengths and weaknesses, strategies for maximizing your strengths, and cultivating a mindset of self-discovery.
 

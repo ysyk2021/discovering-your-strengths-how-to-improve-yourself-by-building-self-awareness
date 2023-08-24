@@ -1,5 +1,3 @@
-Building a Culture of Consistency and Discipline
-=======================================================================================================
 
 Integrating self-awareness into daily life requires consistency and discipline. It's not enough to simply practice mindfulness or reflect on your thoughts and behaviors occasionally; it requires making a conscious effort to prioritize self-awareness and build it into your daily routine.
 
@@ -40,5 +38,4 @@ Conclusion
 ----------
 
 Integrating self-awareness into daily life requires consistency and discipline. By setting a schedule, developing a routine, tracking progress, and finding an accountability partner, you can build consistency and discipline in your practice of self-awareness. Overcoming obstacles such as lack of motivation, a busy schedule, and procrastination is possible with the right mindset and tools. Creating a culture of consistency and discipline around self-awareness can help make it a priority in your life and encourage others to do the same.
-
 

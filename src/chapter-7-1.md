@@ -1,5 +1,3 @@
-The Role of Strengths in Personal and Professional Growth
-===============================================================================================================================
 
 Identifying and leveraging your strengths is a critical component of personal and professional growth. In this chapter, we will discuss the role of strengths in personal and professional growth.
 

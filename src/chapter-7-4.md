@@ -1,5 +1,3 @@
-Building a Culture of Continuous Self-Improvement
-=======================================================================================================================
 
 Identifying your strengths is just the first step towards personal and professional growth. In this chapter, we will discuss how to use your strengths to achieve continued growth and success.
 

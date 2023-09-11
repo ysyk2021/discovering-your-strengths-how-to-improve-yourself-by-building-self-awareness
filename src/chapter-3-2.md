@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Identifying Your Strengths Effectively
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying your strengths is a pivotal step in the journey of self-awareness and personal growth. In this chapter, we will explore various techniques and strategies that can help you uncover your strengths more effectively.
 

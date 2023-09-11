@@ -1,5 +1,4 @@
-Chapter 11: Addressing Common Obstacles and Challenges in Applying Strengths to Growth
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As you embark on the journey of utilizing your strengths for personal and professional growth, you may encounter various obstacles and challenges. This chapter will explore some of the common hindrances and provide strategies to overcome them, allowing you to effectively apply your strengths to achieve your goals.
 

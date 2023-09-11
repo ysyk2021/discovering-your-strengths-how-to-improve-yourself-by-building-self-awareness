@@ -1,5 +1,4 @@
-Chapter 4: Recognizing the Importance of Communicating Your Strengths Effectively
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of self-improvement through building self-awareness, it's crucial to recognize the significance of communicating your strengths effectively. This chapter explores why conveying your strengths to others is essential for personal and professional growth.
 

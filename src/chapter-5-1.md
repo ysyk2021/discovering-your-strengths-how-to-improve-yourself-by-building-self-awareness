@@ -1,5 +1,4 @@
-Chapter 5: The Role of Weaknesses and Limitations in Personal Growth
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of self-improvement and self-awareness, it is essential to recognize and understand the role that weaknesses and limitations play in our journey. In this chapter, we will explore how acknowledging and addressing our shortcomings can be a catalyst for personal growth and development.
 

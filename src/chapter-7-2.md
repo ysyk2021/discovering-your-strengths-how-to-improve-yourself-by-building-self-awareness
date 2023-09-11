@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Using Your Strengths to Achieve Personal and Professional Goals
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Harnessing your strengths is a powerful tool for achieving personal and professional success. In this chapter, we will explore a range of techniques and strategies to help you leverage your strengths effectively in pursuit of your goals.
 

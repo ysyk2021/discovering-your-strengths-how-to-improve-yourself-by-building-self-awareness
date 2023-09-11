@@ -1,5 +1,4 @@
-Chapter 2: Overview of Self-Awareness Theory
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-awareness is the cornerstone of personal growth and development. In this chapter, we will delve into the fundamental principles and theories of self-awareness, providing you with a solid foundation for understanding how it plays a pivotal role in improving oneself through the exploration of strengths.
 

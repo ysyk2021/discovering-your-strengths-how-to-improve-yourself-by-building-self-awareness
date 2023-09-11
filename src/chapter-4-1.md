@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Importance of Maximizing Your Strengths
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey of self-improvement and building self-awareness, understanding the significance of maximizing your strengths is a pivotal concept. This chapter explores why harnessing and leveraging your strengths is essential for personal and professional growth.
 

@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Communicating Your Strengths to Others
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey of self-improvement through building self-awareness, effectively communicating your strengths to others is a crucial skill. This chapter explores techniques to help you articulate your strengths and showcase your abilities in various personal and professional contexts.
 

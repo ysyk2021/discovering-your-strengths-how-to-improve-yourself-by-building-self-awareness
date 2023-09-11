@@ -1,5 +1,4 @@
-Chapter 6: Developing Strategies to Apply Your Strengths in Various Contexts
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for self-improvement and building self-awareness, developing strategies to apply your strengths in diverse contexts is paramount. This chapter delves into practical techniques and approaches to effectively use your strengths in different areas of your life.
 

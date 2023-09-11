@@ -1,5 +1,4 @@
-Chapter 7: Building Trust in Oneself Through Effective Self-Awareness Practices
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of personal growth and improvement, building trust in oneself is a fundamental aspect that can be achieved through effective self-awareness practices. This chapter explores how fostering self-awareness can lead to greater self-trust and confidence.
 

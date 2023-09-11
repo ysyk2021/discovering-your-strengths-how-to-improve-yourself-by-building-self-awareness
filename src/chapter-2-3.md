@@ -1,5 +1,4 @@
-Chapter 3: Developing a Mindset of Self-Discovery
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey of discovering and improving yourself through the lens of self-awareness, cultivating the right mindset is essential. This chapter explores the concept of developing a mindset of self-discovery, providing you with valuable insights and strategies for embarking on this transformative path.
 

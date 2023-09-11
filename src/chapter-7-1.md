@@ -1,5 +1,4 @@
-Chapter 3: The Role of Strengths in Personal and Professional Growth
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of self-awareness and personal development, understanding and harnessing your strengths play a pivotal role. This chapter explores how recognizing and leveraging your strengths can significantly impact your journey of personal and professional growth.
 

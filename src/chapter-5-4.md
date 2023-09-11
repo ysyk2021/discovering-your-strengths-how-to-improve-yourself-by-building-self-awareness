@@ -1,5 +1,4 @@
-Chapter 10: Building a Culture of Self-Improvement and Growth
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a culture of self-improvement and growth is essential not only for individuals but also for organizations, families, and communities. In this chapter, we will explore the principles and strategies for fostering an environment that encourages continuous development and self-awareness.
 

@@ -1,5 +1,4 @@
-Chapter 4: Identifying Different Components of Self-Awareness
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-awareness is a multifaceted concept that encompasses various components, each contributing to a deeper understanding of oneself. In this chapter, we will explore these different facets of self-awareness, providing you with a comprehensive overview of how they shape your journey of self-discovery and self-improvement.
 

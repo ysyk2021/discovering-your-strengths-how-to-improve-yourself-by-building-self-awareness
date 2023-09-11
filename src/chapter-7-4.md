@@ -1,5 +1,4 @@
-Chapter 7: Building a Culture of Continuous Self-Improvement
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To truly thrive in any environment, it's not enough to simply identify your strengths. The next step is to foster a culture of continuous self-improvement. This chapter delves into the foundational principles and actionable steps for creating an environment that not only recognizes strengths but also champions the perpetual journey of betterment.
 

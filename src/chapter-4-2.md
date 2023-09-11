@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Developing Your Strengths
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey of discovering and improving oneself through the lens of self-awareness, it's essential to have effective techniques for developing your strengths. This chapter explores practical approaches and strategies to enhance and maximize your unique strengths.
 

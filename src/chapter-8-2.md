@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Making Self-Awareness a Habit
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for self-improvement and personal growth, cultivating self-awareness is a fundamental and transformative practice. This chapter explores practical techniques and strategies to help you integrate self-awareness into your daily life, making it a habit that empowers your journey of discovering and leveraging your strengths.
 

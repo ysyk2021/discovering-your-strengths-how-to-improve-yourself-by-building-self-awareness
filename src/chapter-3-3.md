@@ -1,5 +1,4 @@
-Chapter 3: Addressing Common Challenges in Identifying Your Strengths
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying your strengths is a fundamental step in the journey of self-improvement and self-awareness. However, this process is not without its challenges. In this chapter, we will explore some of the common obstacles that individuals may encounter when trying to identify their strengths and provide strategies to overcome them.
 

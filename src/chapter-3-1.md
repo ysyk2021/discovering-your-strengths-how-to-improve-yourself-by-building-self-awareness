@@ -1,5 +1,4 @@
-Chapter 1: Recognizing the Importance of Identifying Your Strengths
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey of self-improvement and personal growth, understanding the significance of identifying your strengths is the foundational cornerstone. This chapter explores why recognizing your strengths is not just beneficial but also crucial for your overall development and fulfillment.
 
